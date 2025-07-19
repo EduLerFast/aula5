@@ -1,0 +1,1 @@
+https://github.com/simoneneves2020/pythonPolitecnico2025/blob/main/aula3/estrutura%20condicional%20-%20Linguagem%20de%20programa%C3%A7%C3%A3o%20QQ.pdf
